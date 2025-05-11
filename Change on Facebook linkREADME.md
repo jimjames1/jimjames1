@@ -40,7 +40,7 @@ I'm committed to using technology to bridge gaps, create opportunities, and shap
 
 - **GitHub**:https://github.com/jimjames1)
 - **Email**: jimogutu83@gmail.com
-- **Facebook Page**: [JemDevs Lab] https://facebook.com/JemDevs Lab)
+- **Facebook Page**:https://www.facebook.com/profile.php?id=100080045026369
 
 
 **"Let’s collaborate and code the future – one solution at a time."**
